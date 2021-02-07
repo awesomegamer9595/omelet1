@@ -1,0 +1,1 @@
+ You are going to need a bowl, a whisk or a fork, eggs,salt, a stove, oil, and a pan.
